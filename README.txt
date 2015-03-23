@@ -1,1 +1,1 @@
-Quincy is a l0zer
+Quincy is a great person
