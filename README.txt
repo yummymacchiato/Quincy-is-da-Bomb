@@ -1,0 +1,1 @@
+Quincy is a l0zer
